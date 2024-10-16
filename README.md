@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DreamyDeisy
-- 👀 I’m interested in way too many things.
+- 👀 I’m interested in Sleeping but also politics, videogames' modding and more :D.
 - 🌱 I’m currently learning way too many things.
 - 💞️ I’m looking to collaborate on idk... stuff.
 - 📫 How to reach me DM me or something.
