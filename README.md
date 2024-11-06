@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk... stuff.
 - 📫 How to reach me DM me or something.
 - 😄 Pronouns: she/her.
-- ⚡ Fun fact: :3.
+- ⚡ Fun fact: dont have any.
 
 <!---
 DreamyDeisy/DreamyDeisy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
