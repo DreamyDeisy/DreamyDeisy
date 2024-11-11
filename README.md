@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @DreamyDeisy
-- 👀 I’m interested in Sleeping but also politics, videogames' modding and more :D.
-- 🌱 I’m currently learning way too many things.
-- 💞️ I’m looking to collaborate on idk... stuff.
+- 👀 I’m interested in Sleeping, politics, videogames' modding and my cat.
+- 🌱 I’m currently learning way too much... give me a break.
+- 💞️ I’m looking to collaborate on nothing! I wanna sleep.
 - 📫 How to reach me DM me or something.
 - 😄 Pronouns: she/her.
-- ⚡ Fun fact: dont have any.
+- ⚡ Fun fact:🍉.
 
 <!---
 DreamyDeisy/DreamyDeisy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
